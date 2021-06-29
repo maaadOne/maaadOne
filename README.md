@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Nazar
+### Hi there 👋, I'm Muhammet
 
 ## Welcome to my Github🙂
 
